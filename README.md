@@ -1,1 +1,1 @@
-# Vicinage
+# Vicinity
